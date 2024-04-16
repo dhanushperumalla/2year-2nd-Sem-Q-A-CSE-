@@ -1,1 +1,1 @@
-# 2year-2nd-Sem-Q-A-CSE-
+# 2year-2nd-Sem-Q/A-CSE
